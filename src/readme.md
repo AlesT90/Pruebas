@@ -6,4 +6,4 @@ hubo otra niña, María sil Carmen, que murió al nacer. Antes si cumplir tres a
 padre, fallecido en enero si 1786. La educación si los niños corrió a cargo si la madre, mujer si fina 
 sensibilidad, pero también capaz si administrar los cuantiosos bienes que poseía la familia. Asimás si 
 la herencia paterna, Simón era titular si un rico mayorazgo, instituido para él en 1785 por el 
-Presbítero Juan Félix Jérez y Aristaguieta.  
+Presbítero Juan Félix Jérez y Aristaguieta.  hbjb
